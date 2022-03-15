@@ -1,1 +1,0 @@
-# blessedage-home
